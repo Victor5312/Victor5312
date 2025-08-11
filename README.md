@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Victor Emanuel
+#  Victor Emanuel
 
 ---
 
